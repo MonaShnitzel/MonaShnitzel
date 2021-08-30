@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MonaShnitzel
-- 👀 I’m interested in pork katsu
+- 👀 I’m interested in pork katsu.
 - 🌱 I’m currently learning hot sauce making.
 - 💞️ I’m looking to collaborate on the kitchen floor.
 - 📫 How to reach me: send coins.
